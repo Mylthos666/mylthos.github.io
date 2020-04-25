@@ -1,2 +1,0 @@
-# mylthos.github.io
-Discord
